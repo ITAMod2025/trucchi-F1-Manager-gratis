@@ -1,0 +1,1 @@
+# trucchi-F1-Manager-gratis
